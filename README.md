@@ -1,1 +1,1 @@
-### Exploring the world of open source.
+I am just a meercat who loves to explore the opinion of beautiful minds of mother earth in form of code.
